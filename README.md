@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Squirtle26playz
+- 👀 I’m interested in coding making music and playing games!
+- 💞️ I’m looking to collaborate on nothing yet...
+- 📫 How to reach me [ClasifiedInfo]
